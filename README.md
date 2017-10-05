@@ -1,5 +1,5 @@
 # bornholm_leon
 
-Leon er fra ikke så solrige Bornholm
+Leon er fra solskinsoen Bornholm som er det shit!!!!
 
 Leon pumper for sinds
