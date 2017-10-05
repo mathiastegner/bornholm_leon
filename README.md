@@ -1,5 +1,5 @@
 # bornholm_leon
 
-Leon er fra Bornholm
+Leon er fra ikke så solrige Bornholm
 
 Leon pumper for sinds
